@@ -36,4 +36,24 @@
 <p align="center"> suicidal jokes
 <p align="center"> "i hate you" or "im leaving you" jokes.
 
+</details>
+   <details>
+        <summary> <td>$${\color{#FFFFFF}\verb|friendpreciation|}$$</td></summary>
+  <a href="https://github.com/willbylerr">
+  wife</a> <a href="https://github.com/GONTIER">
+  adam oke.. </a>
+ <a href="https://github.com/p0staldud3">
+  soap guy..</a>
+ <a href="https://github.com/spookyxfloofyxhasx350xgenders">
+  spoopy</a>
+  <a href="https://github.com/rainy-chaos-sys">
+  what a chaotic sys!</a>
+  <a href="https://github.com/Canibalistic-ways-of-life">
+  sallyface(host)</a>
+<br> whis if want t be removed!! </br>
+  
+  </details>
+<br>
+
+
 > <p align="center"> ~ written by tedd 
