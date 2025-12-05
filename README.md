@@ -24,7 +24,8 @@
 
 ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
 <p align="center"> we remember certain people and will approach them, if not and you want to get to know us/the alter , please approach them first. Many of us will not approach first.
-> <p align="center"> INTROVERTS!! HAHH.. sorry..
+
+ > <p align="center"> INTROVERTS!! HAHH.. sorry..
 
 
 ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
@@ -36,6 +37,8 @@
 <p align="center"> suicidal jokes
 <p align="center"> "i hate you" or "im leaving you" jokes.
 
+
+⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
 </details>
    <details>
         <summary> <td>$${\color{#FFFFFF}\verb|friendpreciation|}$$</td></summary>
@@ -56,4 +59,5 @@
 <br>
 
 
+⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
 > <p align="center"> ~ written by tedd 
