@@ -38,7 +38,10 @@
 <p align="center"> "i hate you" or "im leaving you" jokes.
 
 
+
+
 ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
+# ⚠️⚠️ ⠀HIGHLY SATURATED IMAGE B-LOW!! ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
 </details>
    <details>
         <summary> <td>$${\color{#FFFFFF}\verb|friendpreciation ~ host|}$$</td></summary>
@@ -58,6 +61,19 @@
   </details>
 <br>
 
+⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀
+<p align="center" ><img width="1000" height="1000" alt="1000025812" src="https://github.com/user-attachments/assets/cc1c2a7b-ab23-40d7-8eec-cac9679ebe47" /></p>
+
+# <p align="center">" could you guess? "
+
+<p align="center"> we are a multifandom system filled with many different fandoms! 
+
+
 
 ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
+![1000022975](https://github.com/user-attachments/assets/ad73e1b7-2156-40ee-becd-1f0621e2bd99)
+![1000022146](https://github.com/user-attachments/assets/0628d36a-5909-460b-919f-02bda7a82da1)
+
+
+⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
 > <p align="center"> ~ written by tedd 
