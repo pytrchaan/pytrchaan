@@ -4,7 +4,7 @@
 # <p align="center" >"come aboard on the elevator!" </p>
 
 
-<p align="center"> bodily 16
+<p align="center"> bodily 16 collectively having AuDHD  . 
 
 > <p align="center"> traumagenic sys
 
