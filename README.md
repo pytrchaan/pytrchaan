@@ -48,7 +48,7 @@
    <details>
         <summary> <td>$${\color{#FFFFFF}\verb|friendpreciation ~ host|}$$</td></summary>
   <a href="https://github.com/willbylerr">
-  wife</a> <a href="https://github.com/GONTIER">
+  wife</a> <a href="https://github.com/GONTlER">
   adam oke.. </a>
  <a href="https://github.com/p0staldud3">
   soap guy..</a>
